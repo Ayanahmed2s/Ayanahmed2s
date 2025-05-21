@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on building my own websites.<br>I'm looking to collaborate with potential clients.<br>I'm looking for help with medium size agencies or individuals to expand our services.<br>I'm currently learning AI  and it's capabilities depending on requirements.<br>Ask me about my projects.<br>
+💻 I'm currently working on building my own websites.<br>🤝I'm looking to collaborate with potential clients.<br>🫂I'm looking for help with medium size agencies or individuals to expand our services.<br>📊 I'm currently learning AI  and it's capabilities depending on requirements.<br>👨‍💻 Ask me about my projects.<br>
 
 
 ## 🌐 Socials:
